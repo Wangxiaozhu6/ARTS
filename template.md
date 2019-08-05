@@ -1,7 +1,10 @@
 ## Algorithm
 
+---
 ## Review
 
+---
 ## Tip
 
+---
 ## Share
